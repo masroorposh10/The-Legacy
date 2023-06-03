@@ -1,5 +1,7 @@
 # The Legacy Project
-<img width="617" alt="31E563C1-3B28-4D37-BB38-A2F9A0069B8A" src="https://github.com/masroorposh10/The-Legacy/assets/113950154/7f1bcc12-19a5-4fa9-93f0-821043a546ac">
+
+![31E563C1-3B28-4D37-BB38-A2F9A0069B8A_1_201_a](https://github.com/masroorposh10/The-Legacy/assets/113950154/f34e7d60-57f9-4a91-bfec-040d02f448f3)
+
 
 
 
